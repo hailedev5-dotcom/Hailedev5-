@@ -5,3 +5,4 @@
 > Hailemariam tesfaye
 
 [Goto Website](https://hailemariam.github.io)
+[telegram](https://t.me/fikeeditz10)
